@@ -3,4 +3,4 @@
 
  Repositório criado durante uma aula ao vivo!
  
- Essa linha eua dicionei diretamente no site! QUEI MPRESSIOANENTE!
+ Essa linha eua dicionei diretamente no site! QUE IMPRESSIOANENTE!
